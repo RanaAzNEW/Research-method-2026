@@ -8,7 +8,7 @@ I am an M.Sc. student in Marine Biology at the University of Haifa, in the Marin
  
 ### Contact me
 
-[azaizerana@gmail.com](mailto:Pierrick_harnay@uri.com)
+[azizarna257@gmail.com](mailto:Pierrick_harnay@uri.com)
 
 
 ## <center>Rana Azaize</center>
